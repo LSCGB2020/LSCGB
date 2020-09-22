@@ -1,3 +1,3 @@
 # LSCGB
 
-LSCGB is public avaliable at https://drive.google.com/file/d/1wM575Xv9paHCsQyvf4N9IEgmjjSgwV4e/view?usp=sharing
+LSCGB is public avaliable at https://drive.google.com/file/d/1rC2y0Z2OKE53mp-xg4Xr2A2TR925hDiu/view?usp=sharing
